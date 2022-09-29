@@ -6,3 +6,7 @@ His dad went crazy and started to call all of his friends to join him, he was kn
 He made a big meeting and everybody was there, the deer, the foxes, the bears, all the birds, etc,.. The wolf's dad started to talk and explain to everybody that his sons were kidnapped by the tall blue chaperone and they need to do something.
 
 the Bear, who was very close to Papa Loup, took the lead in organizing the operation so that the little cubs were safe and sound and as his 3 groups of animals went towards the road feeling the sons of the wolves
+
+All animals hunted down every human they found.
+Thus the forest was feared for its fierce predators.
+No human ever came close again.
