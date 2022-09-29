@@ -10,3 +10,6 @@ the Bear, who was very close to Papa Loup, took the lead in organizing the opera
 All animals hunted down every human they found.
 Thus the forest was feared for its fierce predators.
 No human ever came close again.
+
+Even the Tall Blue Chaperone didn't wanted to come back in the forest but the only problem was that he kept 2 wolfs in his
+house. The house of the Blue Chaperone was in the middle of the village so it was impossible to enter there with all the animals of the forest. So the wolf's dad make an elite team to go to the village in incognito mode.
